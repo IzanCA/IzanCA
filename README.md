@@ -1,7 +1,18 @@
-## HELLO IM IZAN
+#ola soy inzaann
 
-🛠 Tech Stack
-💻 Python | Java 
-🌐 HTML | CSS | JavaScript
-🛢 MaríaDB | MySQL | CMongoDB
-🔧 Git | Markdown | C# 🎮
+🛠 martillo jajajj
+
+🌐
+
+
+HT
+
+
+
+
+🛢 quien coño es MaríaD y porque toiene un B | MySQL |
+
+
+CMongoDB jaja mongo ![mogno ajsjasj](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQFrHqMiWPbH4RyYX1qs8xVNRiz2petNi4jYA&s)
+
+🫃
